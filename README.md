@@ -1,2 +1,2 @@
 # Typing_Challenge
-Checking the speed of typing and making yourself better
+Check the speed of your typing and making yourself better
